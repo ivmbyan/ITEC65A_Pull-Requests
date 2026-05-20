@@ -25,7 +25,7 @@ Teacher List
 19. 
 20. 
 21. 
-22. 
+22. Madlangbayan, Irron V.
 23. Madlangbayan, Lenard G.
 24. 
 25. 
